@@ -1,0 +1,1 @@
+Dip vai, 06 batch. We all know that He was a bastard too. My roommate was hist first hand victim, along with some others. Just because he was killed by "Hefajot", people didn't say this at that time for greater good. Because he wasn't killed for his crimes. I wish he was killed for his crime. But anyway he got the punishment and suffered painful death. Thanks to God for that.

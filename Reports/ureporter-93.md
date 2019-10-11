@@ -1,0 +1,1 @@
+Please be vocal, not only to ban student politics in BUET,  but in all institutions which are run by this mob culture. Specially be in a stronghold position to ban Bangladesh Chhatra League from all the campuses throughout the country. This is now or never. 

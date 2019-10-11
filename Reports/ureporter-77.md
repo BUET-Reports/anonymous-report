@@ -1,0 +1,1 @@
+BCL of BUET Rashid Hall needed some punching bag. Mohammad Afzal Hossain of 11 batch threatened me passively by my roommate. He specifically mentioned to roommate something liked, there is a shibir in your room, we will size him up. 
