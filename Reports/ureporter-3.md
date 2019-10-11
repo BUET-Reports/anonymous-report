@@ -1,0 +1,1 @@
+About seat allocation in all  hall of  BUET.

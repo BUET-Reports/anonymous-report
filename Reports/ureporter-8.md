@@ -1,0 +1,1 @@
+here we level 1 term 1 students are staying , but here we can not get properly safe water, as there is no filter for purifying water

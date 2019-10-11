@@ -1,0 +1,2 @@
+More than offlines and onlines, the lab should focus on whether the students are able to do it by themselves or not. 
+The teachers must help in some coding basics in the lab. Students are mainly focused on submitting online or offline by hook or by crook instead of learning it. 

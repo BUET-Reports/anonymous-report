@@ -1,0 +1,1 @@
+Mahmud Shetu '14 ChE Avisekh Muhury '14 ChE & other unnamed leaders of BCL activists looted money from Chemical fest  & known as raggers

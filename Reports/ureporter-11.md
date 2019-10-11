@@ -1,0 +1,1 @@
+problems: 1.I can not cope up with the academic pressure. 2.Within a little time we have to learn a lot of things.

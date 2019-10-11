@@ -1,0 +1,3 @@
+problems: 1. I face huge pressure of homeworks and class tests in a shortest amount of time. So neither is done properly.2. There generates a gap of studies which I can't overcome. 3.I find my interest in onlines and offline problems but feel slightest interest in theory. As a result grades becomes poor.
+
+solutions: 1.At the very beginning importance of the course can be described. 2.Unnecessary elaboration should be given up. 3.All students should not be treated equally. Rather those who lags behind should be motivated.

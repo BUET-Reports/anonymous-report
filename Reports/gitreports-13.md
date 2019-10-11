@@ -1,0 +1,3 @@
+Submitter: Md abdullah Al Mamun
+Email: mamunff@gmail.com
+I have been tortured in Bangladesh Agricultural University, Mymensingh. My hall was Banghabundhu Sheikh Mujib Hall. In 2004 Chatrodal leaders call me guest house then scolded me then finally slap in my body. The name of the chatrodal leaders was Parvez, Manir, Antor, Shouvon atleast 15-20 members. My offense was not to go procession during the time of BNP Jamat Govt. I want student politics to be banned in every institute. 

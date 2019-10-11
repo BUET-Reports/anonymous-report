@@ -1,0 +1,1 @@
+Though we submit our scholarship form in due time but the money arrives in our account 6months-1year later. I think the related authority does this thing for personal gain by keeping the money for a certain period of time.

@@ -1,0 +1,1 @@
+problems: Lack of better co-ordination and time management.

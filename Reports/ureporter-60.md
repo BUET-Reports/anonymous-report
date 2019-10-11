@@ -1,0 +1,1 @@
+why a 12 batch student, bcl president "Jami Sami" stay in Aula ( room no: 319), he took the whole room and this was not possible if provost didn't allow it.

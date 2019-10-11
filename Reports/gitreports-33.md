@@ -1,0 +1,3 @@
+Submitter: Anonymous
+Email: saynotorag@no.com
+Jara eto shushilota dekhacche tader onekeo thiki rag dito. For example, najrul haller Shahad vai, cse er. Amake jokhon rag deya hoiechilo tokhon tinio chilen, tar vumika main chilo na, kintu tini probibad to kren nai, borong aro moja pacchilen. Aro onekei ache jara emon. Shahad vai er moto campus e vangchur kore pore aripatar admin hoie jawai take sobai onek valo mone kore, but reality onno rokom. MME r ekta vai ache, nam vule gechi, unio amake marchilo, kintu ei dhoroner vaider kotha keu bole na.

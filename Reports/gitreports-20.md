@@ -1,0 +1,1 @@
+Kill them in their sleep. Don't wait around for "law enforcement". No point in identifying them if they can't be brought to justice. Don't give the next generation reasons to join AL. Which they WILL if we let BSL get away YET AGAIN.

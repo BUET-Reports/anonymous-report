@@ -1,0 +1,3 @@
+problems: 1.It is hard to cope up with the tiresome weeks full of ct , lab , quiz , offline , online , extra class ,lab tests without getting bored. 2. some teachers can not show themselves worthy of explaining theories to students. 3.Another important fact is that mark is in every field I face. so I can not learn tension freely, rather main objective becomes getting marks anyway. 
+                                                                                                          
+solutions: I don't know. but I think one fact may reduce the bargains of students if teachers are more helpful and co-operative.				

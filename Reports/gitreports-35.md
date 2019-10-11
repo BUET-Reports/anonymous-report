@@ -1,0 +1,3 @@
+Submitter: anonymous 
+Email: pokerbug@gmail.com
+I think the current students are at a great risk as the PM said "ওরা ওরা মারামারি করলে তো আর আমরা protection দিতে পারিনা। The support is coming fromthe PM। আন্দোলনের কথা বলে এই ছেলেগুলাকে উসকায়ে বিপদে ফালানোর মানে নাই। Because lets face the truth, no buet alumni has the power to make them safe or bring them Justice even if 5/10 more students die. একজনের মৃত্যুর trauma তে তিন রাত ঘুমাইতে পারতেছিনা ভাই। নিজেদের উত্তেজনার জন্যে ওদেরকে আন্দোলনে উসকায়ে বিপদে না ফালাই।       

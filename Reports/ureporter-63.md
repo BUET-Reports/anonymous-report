@@ -1,0 +1,3 @@
+Ami aula te chilam 4 bochor. Aula te 3 talae kichu political room chilo jaa amar room theke dekha jeto. Ami 3-4 bar dekhsi political neta ra erokom 1-2 jon chele k nie room e dhukato ar aro kichu neta stamp, bat, bash nie dhukte.. bedhorok mara hoto erpor shibir bole hall provost er shamne police er kache die dewa hoto. Ora asholei ki shibir ki na i highly doubt.
+
+Eshob choto choto ghotona thekei ajke abrar er mrithu. Agei jodi authority egula nojor e die thamanor try korto tahole erokom hoto naa. Amar mone hoe abrar er mrittu te jotota naa rasel,ifti,fuad,munna ra dayi tar che beshi buet er teacher ta daayi.

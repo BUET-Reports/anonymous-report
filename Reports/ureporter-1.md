@@ -1,0 +1,2 @@
+Two seniors from 15 batch came all on a sudden at 1 a.m. We thought it would be 'rag-show'. But it was just a warning!
+They gave a hint that this bad habit of ragging will be much intense in the upcoming  times.  They used some slang words as well to humiliate us. We have been warned to stay alert after the mid break cause ragging will be  harder on us at that time( according to them).

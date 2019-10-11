@@ -1,0 +1,2 @@
+What is the usage of this website as you don't check this ? 
+If you read this, please make sure that the teachers are taking classes effectively. About 95% student can't understand the lecture. In fact our teachers are very good. But they need proper training in teaching. 
