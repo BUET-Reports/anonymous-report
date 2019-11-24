@@ -1,0 +1,1 @@
+Submitter: Lol\r\nEmail: lol@lol.lol\r\nwhat BUET authority is doing? just read an article on Dhaka tribe time that you guys changed complaining site. Why? There's lack of cloud storage on a engineering university site. Lol man. Or there's something else going on.

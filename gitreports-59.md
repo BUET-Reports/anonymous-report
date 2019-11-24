@@ -1,0 +1,1 @@
+Submitter: Minhaz Hasan\r\nEmail: minhasan19@gmail.com\r\nAbrar Fahad  bullied me when I was in hall. I know he died and I feel horrible to say he was a very bad person. He slapped me multiple times when I came into hall last year.
